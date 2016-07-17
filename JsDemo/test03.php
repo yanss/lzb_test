@@ -1,3 +1,0 @@
-cccccccccccccccccccccccccccccccccc
-ccccccccccccccccccccccccccccc
-cccc cccccccccccccc 	cccccccccc
